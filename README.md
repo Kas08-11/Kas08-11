@@ -9,3 +9,4 @@ fan av spill som f.eks:
 - cult of the lamb 
 - RDR2 
 - Valo.
+jeg valgte IM fordi det var det eneste som virka greit og har jobb muligheter jeg kunne tenkt meg å jobbe med. det inneholder også ting som relaterer til interessene mine!
